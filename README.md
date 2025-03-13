@@ -1,0 +1,1 @@
+# MuhammadFathirRamada_2306009_Praktikum_AI_2
